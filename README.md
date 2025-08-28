@@ -1,1 +1,0 @@
-# Misogi-week-10
